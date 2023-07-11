@@ -1,4 +1,4 @@
-### I love 2D designs and coding. Also an enthusiastic network engineer <img src="https://raw.githubusercontent.com/handescribbles/handescribbles/main/LightImpassionedAsiaticlesserfreshwaterclam-max-1mb.gif" width="30" height="30>
+### I love 2D designs and coding. Also an enthusiastic network engineer <img src="https://raw.githubusercontent.com/handescribbles/handescribbles/main/LightImpassionedAsiaticlesserfreshwaterclam-max-1mb.gif" alt="" width="300" height="300">
 
 <img src="https://raw.githubusercontent.com/handescribbles/handescribbles/4e63034c8ffe4cff5c06d3c4c30491c3ce25575d/pixel-study.gif" width="auto">
 
