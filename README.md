@@ -1,4 +1,4 @@
-<img src="https://raw.githubusercontent.com/handescribbles/handescribbles/main/cooltext439240760617193.png" alt="" width="100" height="100">
+<img src="https://raw.githubusercontent.com/handescribbles/handescribbles/main/cooltext439240760617193.png" alt="" width="600" height="100">
 
 <img src="https://raw.githubusercontent.com/handescribbles/handescribbles/main/LightImpassionedAsiaticlesserfreshwaterclam-max-1mb.gif" alt="" width="30" height="30"> I love 2D designs and coding. Also an enthusiastic network engineer <img src="https://raw.githubusercontent.com/handescribbles/handescribbles/main/LightImpassionedAsiaticlesserfreshwaterclam-max-1mb.gif" alt="" width="30" height="30">
 
