@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+<img src="https://raw.githubusercontent.com/handescribbles/handescribbles/4e63034c8ffe4cff5c06d3c4c30491c3ce25575d/pixel-study.gif" width="auto">
+
 <!--
 **handescribbles/handescribbles** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
